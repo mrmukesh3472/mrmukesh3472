@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Mukesh Rauniyar.
 - 👀 I’m interested in App Development.
-- 🌱 I’m currently learning B.Tech 3rd Year.
+- 🌱 I’m currently learning B.Tech 4th Year.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me by gmail: mukeshrauniyar2203@gmail.com
 - 😄 Pronouns: He.
